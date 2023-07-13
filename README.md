@@ -1,0 +1,1 @@
+-Hello i'm RoodriGueZz, and i just started studying programing !!
